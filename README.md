@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **soylaprofemarian@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFNp-ssH7k/9SArEXPDRW5M0B-zyCoiHQ/view?utm_content=DAFNp-ssH7k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFNp-ssH7k/9SArEXPDRW5M0B-zyCoiHQ/view?utm_content=DAFNp-ssH7k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
-
 - ⚡ Fun fact **The first programmer in the whole world was a woman. Her name was Ada Lovelace.**
 
 <h3 align="left">Connect with me:</h3>
